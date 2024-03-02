@@ -11,8 +11,8 @@ La Inmersión Fisiom® busca introducir al ​practicante/profesional a una seri
 
 Esta inmersión consta de ocho módulos ​que se traducen a 60 horas de ​entrenamiento y teoría sobre el ​ejercicio terapéutico pa​ra estos padeci​mientos.
 
-![grupo_1](/grapgics/grupo_1.JPG)
-![balance](/grapgics/balance.JPG)
+![grupo_1](/graphics/grupo_1.JPG)
+![balance](/graphics/balance.JPG)
 
 ¿A quién va dirigido?
 
