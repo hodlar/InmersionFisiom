@@ -11,6 +11,9 @@ La Inmersión Fisiom® busca introducir al ​practicante/profesional a una seri
 
 Esta inmersión consta de ocho módulos ​que se traducen a 60 horas de ​entrenamiento y teoría sobre el ​ejercicio terapéutico pa​ra estos padeci​mientos.
 
+![grupo_1](/grapgics/grupo_1.JPG)
+![balance](/grapgics/balance.JPG)
+
 ¿A quién va dirigido?
 
 La Inmersión Fisiom®—Hipercifosis y Fibromialgia va ​dirigida a cualquier persona que tenga alguno de estos ​padecimientos o esté interesada en ellos. Conocida ​coloquialmente como “joroba”, la hipercifosis es una ​curvatura exagerada hacia adelante de la parte superior de ​la espalda. Entre las complicaciones derivadas de la ​hipercifosis se puede encontrar dolor y rigidez de espalda, ​problemas digestivos y problemas de autoestima. Por su ​parte, la fibromialgia es una afección crónica diagnosticada ​únicamente por expertos. Algunos de sus síntomas son el ​dolor generalizado, fatiga, hormigueo, dolor de cabeza, ​depresión y ansiedad.
